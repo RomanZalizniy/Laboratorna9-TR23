@@ -1,4 +1,4 @@
-# Laboratorna9-TR23
+# Laboratorna9-TR23(For ukrainian and foreign users)
 
 Опис надано українською, and for english users I translated it for English!(Scroll down to the bottom)
 
